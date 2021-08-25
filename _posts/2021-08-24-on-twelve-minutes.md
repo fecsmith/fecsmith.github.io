@@ -33,4 +33,4 @@ Either way; It didn’t come close to the lofty heights I had hoped for, but I h
 
 The End.
 
-P.S. This was cross-posted to [Fingers Left the Model](https://fingersleft.wordpress.com/2021/08/25/twelve-minutes/), a primarily Warhammer-themed blog me and three friends started a few weeks before the pandemic hit, and thus is mostly currently in hiatus; one in-person gaming returns, so shall the posts. 
+P.S. This was cross-posted to [Fingers Left the Model](https://fingersleft.wordpress.com/2021/08/25/twelve-minutes/), a primarily Warhammer-themed blog me and three friends started a couple of months before the pandemic hit, which is hence currently in hiatus; once in-person gaming resumes, so shall the posts! 
